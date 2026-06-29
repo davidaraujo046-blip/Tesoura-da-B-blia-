@@ -1,1 +1,1 @@
-# Tesoura-da-B-blia-
+# Tesoura-da-Bíblia-
